@@ -7,7 +7,7 @@
 ### Available on telegram as [@Prince_Music_Robot](https://t.me/Prince_Music_Robot)
 
 <p align="center">
-  <img src="https://telegra.ph/file/dd04b1968f1bc1169d162.jpg">
+  <img src="https://images.app.goo.gl/KnzTyRLiAxmP8rMA6">
 </p>
 
 <h2> Features 🔥 </h2>
